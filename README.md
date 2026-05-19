@@ -18,3 +18,8 @@ All rights reserved. Unauthorized copying, decompiling, or redistribution of thi
 ## Contact
 
 For inquiries or permission requests, please reach out to @zkyoka in discord.
+
+
+## KEYWORDS | SEARCH TERMS
+
+Aether Hub, Arsenal, Arsenal Script, Murder Mystery 2, MM2, SCRIPT, OP SCRIPT, MURDER MYSTERY 2 SCRIPT, BLOX FRUITS SCRIPT, BLOX FRUITS, AUTO STORE, AUTO ROLL, FRUIT FINDER, AUTO FARM, COIN FARM, ESP, KEYLESS.
